@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ConnorTrebac, I grew up in the NW suburbs of Chicago and went to Lake Zurich high school which is probably somewhat familiar to most of you
+- 👀 I’m interested in skiiing, college sports in general, and I think planes are just swell. I go to Colorado and visit family every year so getting away to the mountains is my favorite passtime
+- 🌱 I’m currently majoring in Aerospace with a minor in NDE 
